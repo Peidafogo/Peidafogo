@@ -1,16 +1,14 @@
-## Hi there 👋
+.𝕾𝖔𝖚 𝖇𝖊𝖒 𝖈𝖆𝖘𝖆𝖉𝖆
 
-<!--
-**Peidafogo/Peidafogo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+.𝕹 𝖌𝖔𝖘𝖙𝖔 𝖉𝖊 𝖈𝖔𝖓𝖙𝖆𝖙𝖔 𝖈𝖔𝖒 𝖔𝖚𝖙𝖗𝖆𝖘 𝖕𝖊𝖘𝖘𝖔𝖆𝖘
 
-Here are some ideas to get you started:
+𝕾𝖔𝖚 𝖒𝖆𝖎𝖘 𝖆𝖓𝖎𝖒𝖆𝖎𝖘 𝖉𝖔 𝖖𝖚𝖊 𝖕𝖘𝖘
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+𝔼 𝕤𝕠𝕦 𝕓𝕖𝕞 𝕔𝕙𝕒𝕥𝕒
+
+𝕸𝖆𝖘 𝖘𝖊 𝖖𝖚𝖊𝖗𝖊𝖗 𝖈𝖔𝖓𝖛𝖊𝖗𝖘𝖆𝖗 𝖛𝖔𝖚 𝖙 𝖆𝖖 𝖕𝖗𝖆 𝖆𝖏𝖚𝖉𝖆𝖗
+
+
+⓪⓪⓪①①①④⓪⑦③②⑥Ⓧ 𝓢𝓟@𝓪𝓵.𝓮𝓭𝓾𝓬𝓪𝓬𝓪𝓸.𝓼𝓹.𝓰𝓸𝓿.𝓫𝓻
+
+![](https://i.pinimg.com/originals/40/5b/5d/405b5d670a94fcc00ee0ffe58849d84d.gif)
